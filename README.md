@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Lucigamet1412
 - 👀 I’m interested in Games
-- 🌱 I want To learn codeing
+-
 - 
 
 
